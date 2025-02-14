@@ -1,2 +1,1 @@
 # Belajar-kolaborasi
-menyenangkan bukan
